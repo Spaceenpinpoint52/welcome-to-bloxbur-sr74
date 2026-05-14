@@ -1,4 +1,4 @@
-#  
+#  welcome to bloxburg Scripts advanced offers the most advanced welcome to bloxburg Script, with anti-ban and speed. Perfect for dominating any match.
 
 
 
